@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://vercel.com/avishek-thakurs-projects](https://vercel.com/avishek-thakurs-projects)
 
-- 💬 Ask me about **HTML, CSS, JS, NODE, MONGODB, EXPRESSJS**
+- 💬 Ask me about **Frontend Web Development**
 
 - 📫 How to reach me **thakuravishek2000@gmail.com**
 
