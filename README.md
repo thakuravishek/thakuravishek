@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **thakuravishek2000@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZIKP42V8Amet1LgZwUyDf2qIcm5on-3r/view?usp=sharing](https://drive.google.com/file/d/1ZIKP42V8Amet1LgZwUyDf2qIcm5on-3r/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZIKP42V8Amet1LgZwUyDf2qIcm5on-3r/view?usp=sharing](https://drive.google.com/file/d/1ptHIpW31aZ2IRHrmzvYhg9zBUfEQrzq3/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
